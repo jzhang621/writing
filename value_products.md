@@ -1,0 +1,7 @@
+On Value
+
+One of the main principles that I am trying to incorporate in my life is the idea of giving back value to those around me.  Accordingly, I want to take the time to write about some technological products that add value to my life. 
+
+<u>Amazon Kindle</u>: The Kindle is a fantastic integrated product that enhances the act of reading. The reading experience on a Kindle is excellent, but to me, it is how the Kindle leverages technology, that adds the most value to the end user. The Kindle is light and portable, yet it can fit hundreds of books on its hard drive. The backlight allows for reading in any environment, while reading from a hard copy at night requires an external source of light. The built in dictionary makes it effortless to look up words that I am unfamiliar with. Overall, the purchase of a Kindle has undoubtedly made me a more productive reader. 
+
+<u>Google Maps</u>: Google has created an invaluable product in their Maps application by  simplifying one aspect of our lives. Technically, the challenges in creating a functional maps application are enormous. Much of the data that Google Maps deals with - processing of street names and layouts, toll routes and road closures, public transportation routes and times - are not of the type that can be passively obtained. For the end user, the exceptional coverage and reliability that Google Maps provides has basically completely removed the navigation barrier from our lives. 

@@ -1,0 +1,7 @@
+Influence: The Psychology of Persuasion: Robert Cialdini 
+
+Overview: 3/5. Informative and digestible read that will change the way I view exchanges of influence and persuasion in social interactions. 
+
+The Psychology of Influence and Persuasion by Robert Cialdini examines 6 principles widely wielded in social interactions where influence is exchanged. Cialdini relies on a combination of personal anecdotes, field research, and psychology  studies to illustrate scenarios where one party has been influenced by another party, and underlying "social jijustu" of each interaction. The main takeaway revolves around the idea that these techniques leverage the tendency for our brains to short circuit usual decision processes and instead come to automatic conclusions, while rationalizing the decision to itself in the process. 
+
+Overall, I thought the book was very well organized and presented in a very easily digestible manner to the reader. I will definitely be more aware of the techniques that Cialdini refers to, and I have been able to see how some of my own actions in the past were partly influenced by those same techniques (social proof especially). While the nature of the book makes it less enjoyable than other genres, I definitely consider it a worthwhile and informative bit of reading material.  

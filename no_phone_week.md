@@ -1,0 +1,8 @@
+<u>One Week Without a Smart Phone</u>
+Topic: Expanding my comfort zone, create more rather than constantly consuming
+
+On Friday of last week, I carelessly lost my phone while drinking at Soda Popinksi's on Polk Street in San Francisco. As a consequence, I was left to navigate the world this week without a smart phone. Although I did go to the AT&T store to buy a new phone today, I have to say that I did not miss having my phone at all. 
+
+Most importantly, I realized how much I relied on my phone to stay in my own bubble when I was uncomfortable during social situations, such as lunch at work or with other friends. Without a phone, there is nothing to fall back on, and I was left without a choice to be fully present in the moment. It was liberating to free myself from the distractions of push notifications and the burden of constantly be attuned to what diversions my iPhone 5s could afford me. In addition, the iPhone is a symbol for consumption: when I'm browsing on my iPhone I am most often browsing a Facebook feed or a Quora feed, and doing nothing to contribute to the moment. 
+
+Going forward, I have uninstalled many of the apps that made it easy to be glued to my phone (Facebook, Facebook Messenger, Yahoo Sports, and Yahoo Fantasy Sports). I want to periodically forget that I have a phone on me, only using it for what it does best: taking pictures, keeping in touch with family, planning logistics, playing music while working out, and navigation.  The Goldman Sachs Guide to Being A Man sums it up succinctly: <b>You probably use your cell phone too often and at the wrong moments.</b> 
